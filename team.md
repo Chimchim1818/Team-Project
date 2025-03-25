@@ -1,1 +1,1 @@
-Team lead: Chimuka Sakala
+Team lead: Chimuka Sakala & Ilukena Chisanga
